@@ -1,3 +1,5 @@
-### Fisk og fusk
+### Fisk
 
-Mulig prosjekt for OsloMet-kurs
+🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟
+Mulig prosjekt for OsloMet-kurs 
+🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟
