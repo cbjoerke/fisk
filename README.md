@@ -1,5 +1,3 @@
-### Fisk
+### Biomass reporting in the Norwegian fish-farming industry
 
-🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟
-Mulig prosjekt for OsloMet-kurs 
-🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟🐟
+🐟 Assignment for the course «Introduction to Statistics and Data Analysis» at Oslomet.🐟
